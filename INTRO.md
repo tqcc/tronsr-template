@@ -1,1 +1,1 @@
-A short introduction about your team
+This is team from Japan
